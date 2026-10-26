@@ -11,6 +11,7 @@ I use:
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 A bit bout me:
+
 😺🐶 I love cats and dogs, having a dog myself called suki! :D
 
 🕹️😹 I enjoy arcade games and troll games like "I want to be the guy" and "Syobon Action"
