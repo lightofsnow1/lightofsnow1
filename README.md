@@ -1,7 +1,8 @@
 Sup! 🐱
 
 I'm Connie, an indie game developer based in united kingdom. 🏝️
-👾 I mostly work on small projects to get closer and closer to my dream of having a indie game studio! 👾
+
+👾 I mostly work on small projects to get closer and closer to my dream of having an indie game studio! 👾
 
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
