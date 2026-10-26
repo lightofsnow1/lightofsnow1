@@ -1,2 +1,16 @@
-Connor is a renowned game creator 🎮 and a developer known for their exceptional talent in creating captivating and entertaining games.
-With an impressive portfolio of games designed for people at school🏫, they have gained a little popularity and recognition among their peers and the gaming community.
+Sup! 🐱
+
+I'm Connie, a indie game developer based in united kingdom. 🏝️
+👾 I mostly work on small projects to get closer and closer to my dream of having a indie game studio! 👾
+
+-------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+I use:
+⌨️ blender, unity, unreal engine, MagicaVoxel and other tools! ⌨️
+
+-------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+A bit bout me:
+😺🐶 I love cats and dogs, having a dog myself called suki! :D
+🕹️😹 I enjoy arcade games and troll games like "I want to be the guy" and "Syobon Action"
+🧠🤓 I also LOVE using my creative brain for ideas in games and other creations in my day to day life!
